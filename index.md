@@ -32,4 +32,4 @@ Our Service does not address anyone under the age of 13. We do not knowingly col
 
 ## Contact Us
 If you have any questions about this Privacy Policy, You can contact us:
-*   By email: support@zmapps.com
+*   By email: zmappworld@gmail.com
